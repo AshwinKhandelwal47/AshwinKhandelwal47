@@ -48,9 +48,9 @@
 
 ## 📫 Let's Connect!
 
-- Email: ashwin@dtu.ac.in  
+- Email: ashwin.khandelwal47@gmail.com  
 - Portfolio: [ashwinkhandelwal.dev](https://ashwinkhandelwal.dev)  
-- LinkedIn: [linkedin.com/in/ashwinkhandelwal](https://linkedin.com/in/ashwinkhandelwal)
+- LinkedIn: [linkedin.com/in/ashwinkhandelwal](https://www.linkedin.com/in/ashwin-khandelwal-5496392a2)
 
 ---
 
